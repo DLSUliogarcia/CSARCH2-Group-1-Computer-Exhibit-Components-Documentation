@@ -6,7 +6,7 @@ Bawa, Francis Isip
 
 Garcia, Aurelio Rodolfo
 
-Gomez, Zachary Recomandable
+Gomez, Zachary Recomendable
 
 Roxas, Luis Gabriel
 
